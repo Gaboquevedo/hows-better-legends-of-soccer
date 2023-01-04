@@ -1,1 +1,1 @@
-# hows-better-legends-of-soccer
+# whos-better-legends-of-soccer
